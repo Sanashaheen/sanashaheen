@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about any thing 
 - 📫 How to reach me: on instagram https://www.instagram.com/sana24_8/
 - 😄 Pronouns:she/her 
-- ⚡ Fun fact:i spent all my time to use mobile
+- ⚡ Fun fact:i spend all my time to use mobile
 -->
