@@ -1,5 +1,8 @@
 ### Hi there i am sana shaheen 👋
 
+i am an undergradute student at Capital University of Science and Technology Islamabad 
+Pursing  Bachelor's Degree in Computer Science
+
 - 🔭 I’m currently working on to improve my skills as a developer
 - 🌱 I’m currently learning programming languages like java python 
 - 👯 I’m looking to collaborate on new projects
