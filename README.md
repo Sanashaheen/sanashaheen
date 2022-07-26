@@ -1,5 +1,4 @@
 ### Hi there i am sana shaheen 👋
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on to improve my skills as a developer
 - 🌱 I’m currently learning programming languages like java python 
